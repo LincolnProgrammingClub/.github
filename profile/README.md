@@ -1,4 +1,4 @@
-#Lincoln Programming Club, Lincoln High School
+# Lincoln Programming Club, Lincoln High School
 
 Thursdays at Lunch in Room 111, just walk in!
 
