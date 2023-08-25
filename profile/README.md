@@ -1,8 +1,8 @@
 # Lincoln Programming Club, Lincoln High School
 
-Thursdays at Lunch in Room 111, just walk in!
+Thursdays at Lunch in Room 168, just walk in!
 
-Instagram: @lincoln_programmers
+Instagram: [@lincoln_programmers](https://www.instagram.com/lincoln_programmers/)
 
 Email: LincolnProgrammingClub@gmail.com
 
